@@ -1,2 +1,0 @@
-# vaibhav-cinematic-1819
-Official website of Vaibhav Cinematic 1819
